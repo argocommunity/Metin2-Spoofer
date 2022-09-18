@@ -7,6 +7,7 @@
 - that's it.
 # Running games
  - Rust
+- Fivem
 - Valorant
 - Metin2 (Servers)
 - MTA(Servers)
