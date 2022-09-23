@@ -15,10 +15,10 @@
 - Another Games
 ## How can I buy?
 - Please come to my discord server to purchase.
-- Discord: https://discord.gg/KpwSwneBS4
+- Discord: https://discord.gg/tTjxjgepJU
 - Discord: Argo#0420
 ## Argo Spoofer 
-- https://www.youtube.com/watch?v=DsN4r7rNOKg&ab_channel=ArgoSoftware
+- https://www.youtube.com/watch?v=Us2iJj84nDw&ab_channel=Argo
 ![2](https://user-images.githubusercontent.com/113839299/190916793-957e24ad-f923-4779-8b5e-7654e4bbe888.png)
 ![unknown](https://user-images.githubusercontent.com/113839299/190916806-b51501e6-20e0-4484-b219-68ee15c2019f.png)
 
