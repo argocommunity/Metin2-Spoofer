@@ -15,7 +15,7 @@
 - Another Games
 ## How can I buy?
 - Please come to my discord server to purchase.
-- Discord: https://discord.gg/XczeKVHyFG
+- Discord: https://discord.gg/XbDbwXNa3p
 - Discord: Argo#2048
 ## Argo Spoofer 
 - https://www.youtube.com/watch?v=Us2iJj84nDw&ab_channel=Argo
