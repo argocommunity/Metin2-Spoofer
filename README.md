@@ -24,5 +24,5 @@
 ![2](https://user-images.githubusercontent.com/113839299/190916793-957e24ad-f923-4779-8b5e-7654e4bbe888.png)
 ![unknown](https://user-images.githubusercontent.com/113839299/190916806-b51501e6-20e0-4484-b219-68ee15c2019f.png)
 
-# Note: This is a paid program because it is not a virus. All free programs contain rats and keyloggers! Do not forget it.
+# Note: This is a paid program because it is not a virus. All free programs contain rats and keyloggers! Do not forget it..
 
