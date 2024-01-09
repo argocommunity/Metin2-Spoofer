@@ -18,7 +18,7 @@
 - Please come to my discord server to purchase or visit my website
 - website: https://retaycheats.com/
 - Discord: https://discord.gg/KzNYUjvDK6
-- Discord: retayy
+- Discord: retoooooo
 ## Retay Spoofer 
 - https://www.youtube.com/watch?v=Us2iJj84nDw&ab_channel=Argo
 ![2](https://user-images.githubusercontent.com/113839299/190916793-957e24ad-f923-4779-8b5e-7654e4bbe888.png)
